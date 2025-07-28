@@ -1,0 +1,1 @@
+# spinando-austria.com-git
